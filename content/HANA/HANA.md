@@ -14,3 +14,4 @@
 (happens to them)
 ![[Pasted image 20241214212019.png]]
 
+![[Pasted image 20241221130905.png]]

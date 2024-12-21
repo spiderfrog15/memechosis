@@ -1,3 +1,4 @@
+
 #david 
 ![[Pasted image 20241214214906.png]]
 ![[Pasted image 20241214214926.png]]
@@ -17,3 +18,4 @@
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcn4JTOYFebImniW1BBS83LrHkhFd5MuYPmG-qFE3TYa4KlIvsRTawGRglDwxd_aMd97vvbBiuzAMWBYZGzH87BeemkXpcxSxTk1LFHUSoSPQ9O0nTWPnHxnzoNxxnqvkKJYKmRDA?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 ![[Pasted image 20241220205944.png]]
 ![[Pasted image 20241220211154.png]]
+![[Pasted image 20241221131743.png]]

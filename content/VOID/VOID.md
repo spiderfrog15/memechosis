@@ -20,3 +20,6 @@
 (void if not consumed by the horrors and a mystery individual)
 ![[Pasted image 20241214212852.png]]
 ![[Pasted image 20241215133320.png]]
+![[Pasted image 20241221130738.png]]
+![[Pasted image 20241221131701.png]]
+![[Pasted image 20241221132240.png]]

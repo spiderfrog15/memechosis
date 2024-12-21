@@ -7,3 +7,4 @@
 
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcVIrN0Vhjf9fso5PFNPPlSiYLsLiZsmeCrYMY2IC3czQCZYAV257CpD9Hh3101Q-fCM2onV8MgjWZrsy-z3NUQZZcnWrH3btnsDl1Tt1cc-sRetTeSV0QzVy5n0OuE1Saf4DOuMA?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 (david void)
+![[Pasted image 20241221132200.png]]

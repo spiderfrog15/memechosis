@@ -8,3 +8,4 @@
 (caboose is jacen, tucker is tobias)
 ![[Pasted image 20241215002814.png]]
 ![[Pasted image 20241215002941.png]]
+![[Pasted image 20241221131639.png]]

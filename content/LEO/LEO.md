@@ -28,3 +28,5 @@ https://www.youtube.com/watch?si=KAgT3jrT8Z2xwlGt&v=sjco86ekIlQ&feature=youtu.be
 (He is gotterhag)
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcvukIbPZqHUmsZ0JlIxoTwKc1MpFW77uq1vUTFBdUmuxXodB0R0RDwsxiNYgb8QqEX5Ezhy6ipF4i1d7cCd82nghBRXlPbDeOkk6N1yMjt2IxnHJyfL-qIsdkP3wjm9EkqF34w?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfXwedxtKQutRyWKWoBvy2mJIKeESpUYS2DqhS60fJGEcxcgegjwa7IhVb_ZH96N2Ao-qZRkOvJa1Y4G_eVU-MG5W7OutxnuBd8BILuooXyOeA-u2ARThocSxdq6C5i4ZLK7oWr1g?key=ArE9gjGx41F-QdnnpTPqXmu4)**
+![[Pasted image 20241221131722.png]]
+![[Pasted image 20241221131805.png]]

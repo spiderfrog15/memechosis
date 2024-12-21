@@ -4,3 +4,4 @@
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfOP7TiPPY58gs9qiZzHgSKpycWk82ZOfaHqWkRUyxet-0n58AlfjYZKOKHLLKmvc5wvF7MMgNbNx0jqNypBFcIUPSzm0Pbq_3b77c8n55ymnqZX8rbaakJyzruDeU1e-03zNvCRA?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 (leo david)
 ![[Pasted image 20241220210536.png]]
+![[Pasted image 20241221132001.png]]

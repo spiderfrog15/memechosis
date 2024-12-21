@@ -1,4 +1,4 @@
-
+#jacen 
 ![[Pasted image 20241214210558.png]]
 ![[Pasted image 20241214210616.png]]
 ![[Pasted image 20241214210712.png]]
@@ -26,3 +26,7 @@
 ![[Pasted image 20241214212144.png]]
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcy5TsB6uS8LwYASM9wjqHnhB-zP3EFO0POMomxVqQ8lmaNfGyyNO5cRIihgwjwbjR3hjJ73b6-bIqjZHW8FeAOq5qzLz_QZmDEDNYqOwunTeSIHdI5AYNdt09LvZd-OttuOvBDsQ?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcRQK5Fy0SCvowXp7z2y7CpouIr-ybNwV1RjEJvy1ZRZ7hSNBAITO3hIQpCRrzhUuCskbXVogvpK12IopFyPny4gmKqYDQRqu95iFPZee2RoWOYeWjHHTxfSkh_fTtIOUMqYc2ZOQ?key=ArE9gjGx41F-QdnnpTPqXmu4)**
+![[Pasted image 20241221130833.png]]
+(this one got the jacen emoji so im assuming that is assignment)
+![[Pasted image 20241221131819.png]]
+![[Pasted image 20241221132121.png]]
