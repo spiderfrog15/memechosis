@@ -1,0 +1,22 @@
+#void
+
+![[Pasted image 20241214212222.png]]
+![[Pasted image 20241214212242.png]]
+![[Pasted image 20241214212324.png]]
+(neither are void but could happen to them)
+![[Pasted image 20241214212357.png]]
+![[Pasted image 20241214212441.png]]
+![[Pasted image 20241214212516.png]]
+![[Pasted image 20241214212531.png]]
+![[Pasted image 20241214212548.png]]
+![[Pasted image 20241214212600.png]]
+![[Pasted image 20241214212612.png]]
+![[Pasted image 20241214212618.png]]
+![[Pasted image 20241214212629.png]]
+![[Pasted image 20241214212642.png]]
+![[Pasted image 20241214212711.png]]
+![[Pasted image 20241214212744.png]]
+![[Pasted image 20241214212807.png]]
+(void if not consumed by the horrors and a mystery individual)
+![[Pasted image 20241214212852.png]]
+![[Pasted image 20241215133320.png]]

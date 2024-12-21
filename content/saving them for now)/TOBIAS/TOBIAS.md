@@ -1,0 +1,14 @@
+#tobias
+
+![[Pasted image 20241214213043.png]]![[Pasted image 20241214213139.png]]
+![[Pasted image 20241214213206.png]]
+![[Pasted image 20241214213221.png]]
+![[Pasted image 20241214213230.png]]
+![[Pasted image 20241214213314.png]]
+![[Pasted image 20241214213328.png]]
+![[Pasted image 20241214213343.png]]
+![[Pasted image 20241214213358.png]]
+![[Pasted image 20241214213411.png]]
+![[Pasted image 20241214213434.png]]
+![[Pasted image 20241214213450.png]]
+![[Pasted image 20241214213505.png]]
