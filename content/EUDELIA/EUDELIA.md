@@ -19,3 +19,6 @@
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfUqklDE72I22pyCCS2iYYKcoowyw2i7t4pywz2-s0nx4RRYU4sbVeFiXMhHLq8J8TwRaCEBd_bZnPZGpE2dsVWc2Z5EJDhMEY7Lc3-h5wcrtpgYoI7sqgPsP5VRpHmwBsqdrNL?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd0OaCsR2NPKIwi2KEdmrarU1ThqOw-jDI1MJWsE6ophkz0HkhROHzzPLNaeyta5skHQNMcPacZ5ViNCo_EL6wqlvhSvjCbCRiOAXarhaPfpWw37XFNczG3LPXSs0h82GTHD1g5bw?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfEBd5VyPvBlE4avGDgtWj0z_r9dpZQE6rfaFjd3bLKuKpfpure7pc85w_b4GMOOneWzXyW-sIoh-jxi7jzYJInUyKOt9edfI-IuERJSdFQott3XLZtpCAfFthmlJSHpg?key=ArE9gjGx41F-QdnnpTPqXmu4)**
+![[Pasted image 20241220210501.png]]
+![[Pasted image 20241220210907.png]]
+![[Pasted image 20241220211102.png]]

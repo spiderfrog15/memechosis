@@ -4,3 +4,5 @@
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcRCPHKxJ7MUIWTjqYx4nPcEKjDKAP6MDHq4qBrM0-Ht_kB8g8pQH1Siu6t1YpvJjofK18qCE-cFkQwA4CMvzTMjosIpAHJTuNQ8C2mi22XGPGQC4ajcLApUzYQHbDnvaDwL_If5w?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 ![[Pasted image 20241215000446.png]]
 ![[Pasted image 20241215000705.png]]
+![[Pasted image 20241220210837.png]]
+( #eudelia about #hana)

@@ -21,3 +21,5 @@
 ![[Pasted image 20241215002640.png]]
 ![[Pasted image 20241215002855.png]]
 (if they were normal)
+![[Pasted image 20241220205836.png]]
+(jacen hana)

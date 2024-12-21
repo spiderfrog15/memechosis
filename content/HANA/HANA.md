@@ -1,4 +1,6 @@
 #hana 
+![[Pasted image 20241220210804.png]]
+
 ![[Pasted image 20241214211733.png]]
 ![[Pasted image 20241214211758.png]]
 ![[Pasted image 20241214211820.png]]
