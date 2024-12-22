@@ -30,3 +30,5 @@
 (this one got the jacen emoji so im assuming that is assignment)
 ![[Pasted image 20241221131819.png]]
 ![[Pasted image 20241221132121.png]]
+![[Pasted image 20241222114108.png]]
+![[Pasted image 20241222115329.png]]

@@ -17,3 +17,5 @@
 ![[Pasted image 20241221131609.png]]
 ![[Pasted image 20241221131930.png]]
 ![[Pasted image 20241221131940.png]]
+![[Pasted image 20241222114421.png]]
+(NOTE: this is Tobias*. i do not know what tobias* means. so it is going in the tobias folder. upon questioning what this meant li said "not your problem dont even worry". so probably be worried )

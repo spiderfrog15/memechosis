@@ -30,3 +30,6 @@ https://www.youtube.com/watch?si=KAgT3jrT8Z2xwlGt&v=sjco86ekIlQ&feature=youtu.be
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfXwedxtKQutRyWKWoBvy2mJIKeESpUYS2DqhS60fJGEcxcgegjwa7IhVb_ZH96N2Ao-qZRkOvJa1Y4G_eVU-MG5W7OutxnuBd8BILuooXyOeA-u2ARThocSxdq6C5i4ZLK7oWr1g?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 ![[Pasted image 20241221131722.png]]
 ![[Pasted image 20241221131805.png]]
+![[Pasted image 20241222114553.png]]
+(leo act 3)
+![[Pasted image 20241222114742.png]]

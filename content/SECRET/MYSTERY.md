@@ -15,3 +15,7 @@
 ("hahaha")
 ![[Pasted image 20241216115827.png]]
 (someone, but if i told you i'd have to kill you)
+![[Pasted image 20241222114633.png]]
+(haha)
+![[Pasted image 20241222114644.png]]
+(spoiler)

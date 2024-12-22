@@ -5,3 +5,5 @@ https://va.media.tumblr.com/tumblr_s1g9vofYID1w5pr9j.mp4
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXenUQq2OyX4UI9lzm5lfnWaNScqS8R1G1qwHM1Mr5btQ-POsYIobowR9doGuJWOvyO_3hItA6EVV2uN6yu2KswrqWIgBXaJZcA-Tv3zrUpY6zRp4xE-lsMKKSGnvd4dUyD20oEBFQ?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfXPeEkS08UaBNu7ULhfpcibDGjNgeM6QKprE-3M0u9PwqbYDUl3wodM1Vnc8oh6ZsijpZJx2FYNHy0EOWBSlngaVKguZ4hMBst_PWzJNltAbPZpxDUVa7rPDQ8jXMWdnw5msImkg?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 ![[Pasted image 20241215001802.png]]
+![[Pasted image 20241222114303.png]]
+(how dynamic is shaping up to be in this early stage)

@@ -24,3 +24,5 @@
 ![[Pasted image 20241220211102.png]]
 ![[Pasted image 20241221132028.png]]
 ![[Pasted image 20241221132141.png]]
+![[Pasted image 20241222114711.png]]
+(not because it applies but because she would say it)
