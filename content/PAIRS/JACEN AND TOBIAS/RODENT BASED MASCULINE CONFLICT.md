@@ -9,3 +9,7 @@
 ![[Pasted image 20241215002814.png]]
 ![[Pasted image 20241215002941.png]]
 ![[Pasted image 20241221131639.png]]
+![[Pasted image 20250106115532.png]]
+(isn't jacen tobias but is adjacent)(art credit https://laikabu.tumblr.com/post/771036783140012032 )
+![[Pasted image 20250106122000.png]]
+(tobias jacen if jacen was transphobic)

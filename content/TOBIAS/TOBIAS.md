@@ -19,3 +19,12 @@
 ![[Pasted image 20241221131940.png]]
 ![[Pasted image 20241222114421.png]]
 (NOTE: this is Tobias*. i do not know what tobias* means. so it is going in the tobias folder. upon questioning what this meant li said "not your problem dont even worry". so probably be worried )
+![[Pasted image 20250106115124.png]]
+![[Pasted image 20250106115155.png]]
+(could be an au tobias. not this one though. like if tobias and eudelia were in an arranged marriage or something)
+![[Pasted image 20250106115851.png]]
+![[Pasted image 20250106120619.png]]
+![[Pasted image 20250106121049.png]]
+![[Pasted image 20250106121519.png]]
+![[Pasted image 20250106121935.png]]
+![[Pasted image 20250106122458.png]]

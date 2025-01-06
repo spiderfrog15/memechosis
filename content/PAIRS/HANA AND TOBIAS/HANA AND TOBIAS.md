@@ -7,3 +7,5 @@ https://va.media.tumblr.com/tumblr_s1g9vofYID1w5pr9j.mp4
 ![[Pasted image 20241215001802.png]]
 ![[Pasted image 20241222114303.png]]
 (how dynamic is shaping up to be in this early stage)
+![[Pasted image 20250106121614.png]]
+![[Pasted image 20250106122102.png]]

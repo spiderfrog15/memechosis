@@ -33,3 +33,8 @@ https://www.youtube.com/watch?si=KAgT3jrT8Z2xwlGt&v=sjco86ekIlQ&feature=youtu.be
 ![[Pasted image 20241222114553.png]]
 (leo act 3)
 ![[Pasted image 20241222114742.png]]
+![[Pasted image 20250105195949.png]]
+![[Pasted image 20250106120143.png]]
+(about being in a relationship with rei)
+![[Pasted image 20250106120515.png]]
+![[Pasted image 20250106121835.png]]

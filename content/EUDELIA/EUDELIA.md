@@ -26,3 +26,10 @@
 ![[Pasted image 20241221132141.png]]
 ![[Pasted image 20241222114711.png]]
 (not because it applies but because she would say it)
+![[Pasted image 20250105195917.png]]
+![[Pasted image 20250106114900.png]]
+(an au eudelia)
+![[Pasted image 20250106115327.png]]
+![[Pasted image 20250106121130.png]]
+![[Pasted image 20250106121429.png]]
+![[Pasted image 20250106121447.png]]

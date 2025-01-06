@@ -3,3 +3,11 @@
 (could be so many)
 ![[Pasted image 20241221131413.png]]
 ![[Pasted image 20241221132222.png]]
+![[Pasted image 20250106115950.png]]
+(a lot of them. like several)
+![[Pasted image 20250106120125.png]]
+(LOTS)
+![[Pasted image 20250106120432.png]]
+(synechosis in general)
+![[Pasted image 20250106121631.png]]
+(everyone dependng on act)

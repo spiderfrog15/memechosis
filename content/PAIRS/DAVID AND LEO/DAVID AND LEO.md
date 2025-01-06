@@ -5,3 +5,5 @@
 (leo david)
 ![[Pasted image 20241220210536.png]]
 ![[Pasted image 20241221132001.png]]
+![[Pasted image 20250106115413.png]]
+( #david regarding #leo )

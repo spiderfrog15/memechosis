@@ -23,6 +23,7 @@
 - [[REI AND EUDELIA]]
 - [[REI AND HANA]]
 - [[TOBIAS DAVID]]
+-[[TOBIAS AND LEO]]
 - [[TOBIAS AND REI]]
 - [[VOID AND DAVID]]
 - [[VOID AND EUDELIA]]
@@ -33,7 +34,7 @@
 - [[LEO REI AND PET BOY]]
 - [[HATE DIAMOND]]
 - [[MISC GROUPS MENU]]
-- 
+- [[WASTELANDERS]]
 **NPCS**
 - [[LUCARIS]]
 - [[TAVI]]
@@ -42,6 +43,7 @@
 - [[AUSPEX]]
 - [[LOZANO PARENTS]]
 - [[TAVI AND LUCARIS]]
+- [[SKAI]]
 
 **[[LOCATIONS]]**
 

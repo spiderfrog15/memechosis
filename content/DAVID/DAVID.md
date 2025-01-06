@@ -19,3 +19,10 @@
 ![[Pasted image 20241220205944.png]]
 ![[Pasted image 20241220211154.png]]
 ![[Pasted image 20241221131743.png]]
+![[Pasted image 20250105195312.png]]
+![[Pasted image 20250106115304.png]]
+![[Pasted image 20250106120352.png]]
+![[Pasted image 20250106121111.png]]
+(if it was not physical)
+![[Pasted image 20250106121231.png]]
+![[Pasted image 20250106122417.png]]

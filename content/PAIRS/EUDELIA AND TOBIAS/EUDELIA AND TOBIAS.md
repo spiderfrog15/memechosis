@@ -5,3 +5,6 @@
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcaLnopp6GBMKQAg6YLjPN2vUrSQ31mD0dEwFJ89teVBK27Xwhr_7Iu2ljeSbWsnljSTdYjB0f_3DbPReMPHRu5Dy9TdZ4rx7880FFLejcJQAAbGLrSN-fjvsGNf3MuRuh6zk2m?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 (tobias eudelia)
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc_8V48hxuUMIh-2VYDXm36D26Ostg3WxED644jalf1hQQ3JcYhoQJAYAAyRFxtzjZEzpwdKCCLcWp47HqXG9O-PmJnUmmicQzZlmasI8IQk4R6KU-oGgyNMdteBkwgOPYkRLCoFQ?key=ArE9gjGx41F-QdnnpTPqXmu4)**
+![[Pasted image 20250106121724.png]]
+(tobias about eudelia)
+![[Pasted image 20250106122031.png]]

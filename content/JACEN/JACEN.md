@@ -27,8 +27,23 @@
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcy5TsB6uS8LwYASM9wjqHnhB-zP3EFO0POMomxVqQ8lmaNfGyyNO5cRIihgwjwbjR3hjJ73b6-bIqjZHW8FeAOq5qzLz_QZmDEDNYqOwunTeSIHdI5AYNdt09LvZd-OttuOvBDsQ?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcRQK5Fy0SCvowXp7z2y7CpouIr-ybNwV1RjEJvy1ZRZ7hSNBAITO3hIQpCRrzhUuCskbXVogvpK12IopFyPny4gmKqYDQRqu95iFPZee2RoWOYeWjHHTxfSkh_fTtIOUMqYc2ZOQ?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 ![[Pasted image 20241221130833.png]]
+![[Pasted image 20250106121541.png]]
+
 (this one got the jacen emoji so im assuming that is assignment)
 ![[Pasted image 20241221131819.png]]
 ![[Pasted image 20241221132121.png]]
 ![[Pasted image 20241222114108.png]]
 ![[Pasted image 20241222115329.png]]
+![[Pasted image 20250105195151.png]]
+![[Pasted image 20250105195512.png]]
+![[Pasted image 20250105195544.png]]
+![[Pasted image 20250105195553.png]]
+![[Pasted image 20250105200216.png]]
+![[Pasted image 20250106115932.png]]
+(about him)
+![[Pasted image 20250106120326.png]]
+(almost but not quite)
+![[Pasted image 20250106120536.png]]
+![[Pasted image 20250106120545.png]]
+![[Pasted image 20250106121247.png]]
+![[Pasted image 20250106123742.png]]

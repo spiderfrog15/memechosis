@@ -19,3 +19,5 @@
 (haha)
 ![[Pasted image 20241222114644.png]]
 (spoiler)
+![[Pasted image 20250106121402.png]]
+("one of you for sure")
