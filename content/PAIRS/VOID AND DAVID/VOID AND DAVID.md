@@ -9,3 +9,4 @@
 (david void)
 ![[Pasted image 20241221132200.png]]
 ![[Pasted image 20250106122629.png]]
+![[Pasted image 20250907195115.png]]

@@ -1,4 +1,14 @@
 #hana #jacen 
+
+
+
+
+![[Pasted image 20250422144050.png]]
+![[Pasted image 20250422144108.png]]
+
+
+![[Pasted image 20250422143732.png]]
+
 ![[Pasted image 20241214220356.png]]
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd5ZoR8XpjPPcQcd4W0G4v0WNLbDaDOoeoEOGA-3fwDFajNvvwwcYl_rNku-5S_Tb6IiqNm64Vni1BXLseQyzqZ3Uu3syvXINEFpcnMxoZZbcwgxMz4wsYcVtv-AWwZ42kP9RHJbA?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXePjuz2w2QZanowFYPYT1Gloz9KZ4kcFpg6NYq10JSc2pabra9V0zOVyqew1AKR29_8JqVSOwJqHLm_q0FVuvrcnycT-5-SZWzy2Ck7UHy2iy9SnPYY0ZORh5SdImsc0FtU9vFV?key=ArE9gjGx41F-QdnnpTPqXmu4)**
@@ -23,3 +33,4 @@
 (if they were normal)
 ![[Pasted image 20241220205836.png]]
 (jacen hana)
+![[Pasted image 20250907194700.png]]

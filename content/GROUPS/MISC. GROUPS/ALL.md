@@ -11,3 +11,9 @@
 (synechosis in general)
 ![[Pasted image 20250106121631.png]]
 (everyone dependng on act)
+![[Pasted image 20250907185022.png]]
+![[Pasted image 20250907192910.png]]
+
+
+
+#david #eudelia #hana #tobias #jacen #leo #rei #void 

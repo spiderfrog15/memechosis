@@ -8,3 +8,6 @@
 ![[Pasted image 20250106121724.png]]
 (tobias about eudelia)
 ![[Pasted image 20250106122031.png]]
+![[Pasted image 20250907184908.png]]
+![[Pasted image 20250907184950.png]]
+![[Pasted image 20250907200453.png]]

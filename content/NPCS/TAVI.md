@@ -3,3 +3,5 @@
 ( #tavi , #rei )
 **![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcA8YSPoWxu9lp0VHlWRJgod9vE2GKJnutRY8i-ql0bqha27RSjACUtLMvJsiU-NjEf-HLLfDxp_nrylAWO1sPlgs7Vco737Ee8UCcPOziLgU41IMm4Ka2PwNfjw6Sb_JukNG1mVw?key=ArE9gjGx41F-QdnnpTPqXmu4)**
 ( #tavi, #rei)
+![[Pasted image 20250907190849.png]]
+![[Pasted image 20250907200317.png]]

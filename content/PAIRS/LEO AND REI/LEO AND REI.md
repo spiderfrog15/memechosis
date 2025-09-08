@@ -17,3 +17,11 @@
 (rei leo)
 
 ![[Pasted image 20250106121003.png]]
+![[Pasted image 20250907185310.png]]
+![[Pasted image 20250907190755.png]]
+(COULD be them but Leo is hot)
+![[Pasted image 20250907191117.png]]
+![[Pasted image 20250907191606.png]]
+![[Pasted image 20250907195831.png]]
+![[Pasted image 20250907200808.png]]
+![[Pasted image 20250907201204.png]]

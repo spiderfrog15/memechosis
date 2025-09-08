@@ -21,3 +21,7 @@
 (spoiler)
 ![[Pasted image 20250106121402.png]]
 ("one of you for sure")
+![[Pasted image 20250422144246.png]]
+![[Pasted image 20250907195016.png]]
+![[Pasted image 20250907202100.png]]
+(unspecified npc)
